@@ -1,3 +1,4 @@
 HELLO--
 aiueoooo
 onakasuita
+kamakura
